@@ -8,4 +8,4 @@ Meu nome é Pedro Netto tenho 15 anos
   ## polenta frita é bão ##
 
   
-![](https://media.tenor.com/prT_agJ7F98AAAAd/the-rock-the-rock-sus.gif)
+![](https://media.tenor.com/prT_agJ7F98AAAAM/the-rock-the-rock-sus.gif)
